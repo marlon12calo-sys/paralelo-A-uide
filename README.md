@@ -1,0 +1,1 @@
+# paralelo-A-uide
